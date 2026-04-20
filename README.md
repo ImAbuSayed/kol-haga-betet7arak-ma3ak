@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي أنا بهواك
+> كل حاجة بتتحرك معاك
+> نور عيني روحي فداك
+> ليل ونهار أنا بستناك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
